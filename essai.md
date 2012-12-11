@@ -1,5 +1,5 @@
 # OMAGAD
-## Oh i'm lil'
+## modif
 
     git U SUCH A CONNECTION PLAYA
     git ADMIT U A SHIT
