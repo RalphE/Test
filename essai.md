@@ -1,0 +1,6 @@
+# OMAGAD
+## Oh i'm lil'
+
+    git U SUCH A CONNECTION PLAYA
+    git ADMIT U A SHIT
+    git OKAY IM SHIT NOW ADMIT THA U A CONECTION PLAYA!!
